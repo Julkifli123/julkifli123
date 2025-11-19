@@ -1,5 +1,5 @@
 # 💫 About Me:
-halo guys saya julkifli dari bima nusa tenggara barat,kesibukkan saya sehari hari adalah  kuliah . saya adalah mahasiswa TEKNOLOGI INFORMASI di UIN MATARAM. saya berharap dari ilmu ini dapat bern=manfaat bagi saya dan orang banyak.
+halo guys saya julkifli dari bima nusa tenggara barat,kesibukkan saya sehari hari adalah  kuliah . saya adalah mahasiswa TEKNOLOGI INFORMASI di UIN MATARAM. saya berharap dari ilmu ini dapat bermanfaat bagi saya dan orang banyak.
 
 
 ## 🌐 Socials:
